@@ -1,2 +1,2 @@
 # hello-world
-test repository
+test repository - hi my name is john i like to think in parallel.  i have come to the conclusion that macro evolution is a religion and not science at all.  should be regulated to the being fiction or better yet fairytale and should be taught as a great example of how not to do science...
